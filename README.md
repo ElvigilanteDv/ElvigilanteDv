@@ -56,6 +56,6 @@ Mi waifu favorita es Hinata Hyuga 💜, y por eso creé este bot con su personal
 
 <div align="center">
 
-> *"No me rendiré, porque quiero ser fuerte como Naruto-kun"* — Hinata Hyuga 🌸
+> *"No me rendiré, porque quiero ser fuerte como Wang Ling"* — Hinata Hyuga 🌸
 
 </div>
